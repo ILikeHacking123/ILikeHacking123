@@ -6,7 +6,7 @@
 📫 How to reach me - gmail: tuanminhthom27022012@gmail.com
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 ## Hello everyone! 😀
-My name is Tuanminh, i am in grade 7. So nice to meet you, i am programmer and i can programming 9 languages programming. It is beyond ability of a kid, but i can do it.
+My name is Tuanminh, i am 21 years old. So nice to meet you, i am programmer and i can programming 9 languages programming. It is beyond ability of a normal programmer, but i can do it.
 I finding contributors on github. Condition to become it is:
   - Don't cheat, be kind 🥰
   - Don't virus. You aren't hacker! You will see policeman or pay!😤😤
